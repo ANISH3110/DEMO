@@ -18,3 +18,10 @@ my father is working as a general manager in jewel one
 my mother also working in same company 
 they where love married 
 my father is a BCA holder 
+                            ROLEMODEL
+my rolemodel is sachin 
+becouse the one who come from a big failure
+he was failed in 10 th as nee did no goo to any job he focused on his goal
+he become a success full man in the world 
+so i like him soo much 
+as i learn from him is failure is not a matter 
