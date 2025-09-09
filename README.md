@@ -21,7 +21,11 @@ my father is a BCA holder
                             ROLEMODEL
 my rolemodel is sachin 
 becouse the one who come from a big failure
-he was failed in 10 th as nee did no goo to any job he focused on his goal
+he was failed in 10 th as he did no go
+to any job he focused on his goal
 he become a success full man in the world 
 so i like him soo much 
 as i learn from him is failure is not a matter 
+                        TELLING TO YOU 
+everything is to make me as aa good problem solver 
+i need all your knowlage to give it to mee 
