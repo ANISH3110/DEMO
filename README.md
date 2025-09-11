@@ -29,3 +29,18 @@ as i learn from him is failure is not a matter
                         *TELLING TO YOU* 
 everything is to make me as aa good problem solver 
 i need all your knowlage to give it to mee 
+
+
+#################################################################################################
+
+Anish,
+
+I am very happy to read about you. Your aim of becoming a strong problem solver and getting placed in a good company with a high package is a very good goal, and I truly believe you can achieve it with focus and hard work.
+
+Don’t worry that you don’t know programming yet—every expert once started as a beginner. Your interest in CSE and your confidence in asking for help are already your biggest strengths. I will surely guide you in Python and in problem-solving step by step, so that you build a strong foundation.
+
+I also admire the way you shared about your family. With such supportive parents and your own determination, I am confident you will grow into a successful person. 
+
+I really appreciate your positive words about my teaching. I will do my best to share my knowledge with you and help you become not just a programmer, but a confident problem solver. Always stay consistent, believe in yourself, and keep moving forward.
+
+All the very best, Anish—I am sure I will see you achieve your dream.
